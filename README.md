@@ -1,2 +1,2 @@
 # Alex Su
-![Meme](/alexsu97.github.io/docs/assets/funny cat.jpeg)
+![Meme](/alexsu97.github.io/assets/funny cat.jpeg)
