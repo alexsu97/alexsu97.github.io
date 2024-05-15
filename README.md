@@ -1,2 +1,2 @@
-# You just got Fished loser
+# You just got hacked loser
 ![Meme](/docs/assets/funnycat.jpeg)
